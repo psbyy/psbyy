@@ -1,7 +1,7 @@
 逹葢薾的旗帜2025地一地址二
 
 
-<a href="https://2ndjcj11.kesang6to.com?https://github.com">→→最/新/观/看/入/口←←</a>
+<a href="https://m8k3.cc">→→最/新/观/看/入/口←←</a>
 
 
 先前他在兰镇就撞过邪。
